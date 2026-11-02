@@ -1,4 +1,4 @@
-˚₊‧꒰ა Hiiiiiiiiiii, I'm Sumin! ໒꒱ ‧₊˚
+˚₊‧꒰ა **Hiiiiiiiiiii, I'm Sumin!** ໒꒱ ‧₊˚
 
 ✷ Product Designer based in Toronto, Canada 🇨🇦 ₊˚<br>
 ✷ Currently working on ⋆ building creative websites & making the internet a little prettier, one pixel at a time 🔭 ₊˚<br>
